@@ -5,14 +5,14 @@
 
 ## Ingredients
 
-[ ] 3 sliced tomatoes, seeded and diced small (about 3 cups diced)
-[ ] 1 small shallot, diced small
-[ ] 2 cloves garlic, minced
-[ ] 2 Tbsp fresh basil, minced (about 1 small clamshell)**
-[ ] 1/4 tsp salt
-[ ] 3 tsp olive oil
-[ ] 2 tsp balsamic vinegar
-[ ] 1 baguette, cut into 1/4 - 1/2 inch slices and toasted
+* 3 sliced tomatoes, seeded and diced small (about 3 cups diced)
+* 1 small shallot, diced small
+* 2 cloves garlic, minced
+* 2 Tbsp fresh basil, minced (about 1 small clamshell)**
+* 1/4 tsp salt
+* 3 tsp olive oil
+* 2 tsp balsamic vinegar
+* 1 baguette, cut into 1/4 - 1/2 inch slices and toasted
 
 
 ## Instructions
